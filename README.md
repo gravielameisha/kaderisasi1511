@@ -2,3 +2,5 @@
 1. Makan soto
 2. Scroll tiktok
 3. Bobo di kos
+4. Kaya raya
+5. Kerjain Laprak
